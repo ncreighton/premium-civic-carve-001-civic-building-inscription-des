@@ -1,0 +1,2 @@
+# premium-civic-carve-001-civic-building-inscription-des
+Stop letting bureaucratic hurdles and miscommunication derail your civic building inscription project. The Civic Building Inscription Design and Install Planner transforms chaotic, multi-stakeholder projects into a streamlined, compliant, and artistically coherent process.  This planner solves the fragmentation of design approvals, material specs,
